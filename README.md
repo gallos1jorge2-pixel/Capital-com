@@ -1,0 +1,2 @@
+# Capital-com
+Traiding señalada
